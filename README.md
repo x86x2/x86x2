@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @x86x2
+- 👀 I’m interested in CHESSE
+- 🌱 I’m currently learning CHESSEY TRACER FEET
+- 💞️ I’m looking to collaborate on KILLING BRITISH SCUM
+- 📫 How to reach me DIE OUT BRITISH SCUM
